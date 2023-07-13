@@ -1,4 +1,4 @@
-# Slot drommernes 隐私政策
+# Slot drommernes Privacy Policy
 
 Welcome to visit our products.  **Slot drommernes** (Including services provided by products such as apps, hereinafter referred to as "products and services") It is developed and operated by Slot (hereinafter referred to as "us"). Ensuring user data security and privacy protection is our top priority. This privacy policy specifies the data you collect and how it is processed when accessing and using our products and services.
 
